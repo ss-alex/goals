@@ -11,7 +11,7 @@ My list of goals for 2026
 9. Run a marathon in Istanbul in 1-10th of November
 10. Launch a pet startup and raise an investment
 11. Invest 10000k USD to personal finances
-12. Visit 4 more new countries
+12. Visit 3 new countries
 13. Meet 30 new friends
 14. Become close friends with 2 new people
 15. Write 5 more stories to my book
