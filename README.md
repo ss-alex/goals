@@ -27,3 +27,4 @@ My list of goals for 2026
 25. Walk at least 10 minutes outdoors everyday
 26. Code personal projects at least 1 hour everyday
 27. Prove check every milestone of the year with the photo
+28. Samvel podcast episode about iOS development
