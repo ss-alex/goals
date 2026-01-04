@@ -2,7 +2,7 @@
 My list of goals for 2026
 
 1. Travel to France with my family or friends
-2. To see my friends in Dubai, Brazil, Germany and Cyprus
+2. To see my friends from Dubai, Brazil, Germany and Cyprus
 3. Read 10 books
 4. To buy an appartment
 5. Get an upgrade at work (grade level up)
